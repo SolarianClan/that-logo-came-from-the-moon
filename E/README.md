@@ -1,4 +1,5 @@
 # Entry E
+## Arist: [**AkoriaPink**](https://www.twitter.com/tasha_sfx)
 **Artist’s Statement:**
 The icon is based on the Bungie shield (with the hand holding a lightning bold, the cross swords, and the 7).  It has an S in the Shadowkeep font and the clan swords and wisps.
 
