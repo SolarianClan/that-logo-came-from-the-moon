@@ -1,5 +1,5 @@
 # Entry A
-## Artist: **CheckerChairs**
+## Artist: [**CheckerChairs**](https://twitter.com/grubsongs)
 **Artist’s Statement:**
 I focused on the literal Shadowkeep, and the hive spikey stuff for the logo - and the moon, of course, since that’s where we’ll be mostly working around.
 
