@@ -1,4 +1,5 @@
 # Entry C
+## Artist: [**OsmiumKing**](https://www.twitter.com/KingOsmium)
 **Artist’s Statement:**
 These are my Hive worms... terrors from the Moon.   My logo includes the worm“S”, as well as the “o”  in its orbit to evoke the Moon.  My icon includes the “S” worm, with the saltire Solarian swords ajouré.
 
