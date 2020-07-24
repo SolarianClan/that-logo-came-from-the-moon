@@ -1,4 +1,5 @@
 # Entry D
+## Artist: [**OsmiumKing**](https://www.twitter.com/KingOsmium)
 **Artist’s Statement:**
 My designs are intended to invoke Vex architecture of the Garden of Salvation using Solarian colors.
 
